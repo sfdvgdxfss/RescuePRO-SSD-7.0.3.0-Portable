@@ -18,12 +18,12 @@ Www LC Tech com RescuePRO serial number
 
 SanDisk RescuePRO
 
-www.lc-tech.com/rescuepro 2 year
+[www.lc-tech.com/rescuepro](https://shorturl.at/A6M4m) 2 year
 
 RescuePRO Deluxe
 
-www.lc-tech.com/rescuepro today
+[www.lc-tech.com/rescuepro](https://shorturl.at/A6M4m) today
 
-www.lc-tech.com/rescuepro 2 year serial number
+[www.lc-tech.com/rescuepro](https://shorturl.at/A6M4m) 2 year serial number
 
 ## [👍🏻💯New Version Link](https://shorturl.at/A6M4m)
